@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with trader joe trading bot AI-powered Algorithm | staking-integration & fee-optimization, the #1 trader joe trading bot. Includes staking-integration and
 
 
 
